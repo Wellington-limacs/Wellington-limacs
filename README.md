@@ -4,3 +4,4 @@
 - Nas minhas horas vagas gosto de joga bola, jogar algum jogo digital ou ate mesmo estudar.
 - Meu sonho é fazer alguns cursos, fazer faculdade.
 - contato ( gmail: 00001121919650sp@al.educacao.sp.gov.br).
+https://tenor.com/rpN17FFElfg.gif
